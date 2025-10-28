@@ -15,7 +15,14 @@ It’s set in a world where humanity lives inside enormous walls to protect them
 > “If you win, you live. If you lose, you die. If you don’t fight, you can’t win!”  
 > — *Eren Yeager*
 
----
+## My Favorite Series
+
+**Attack on Titan ** is my favorite series of all time.  
+*It’s a dark fantasy anime* filled with action, emotion, and deep themes about freedom and humanity.
+
+> “If you win, you live. If you lose, you die. If you don’t fight, you can’t win!”  
+> — *Eren Yeager*
+-----
 
 ## Main Characters
 
